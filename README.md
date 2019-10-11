@@ -3,7 +3,7 @@ The next twenty years will be very critical for the nation and the African
 continent on every front of development. We are confronted by a fast
 paced, out of control environment of business disruption driven by
 technology and lifestyle changes.
-How do young people in Nigeria cope with the spate of disruption within
+How do young people in Nigeria cope with the state of disruption within
 an environment fraught with uncertainty, lack of opportunities and
 despair? Many youths make career choices based entirely on inadequate
 information or second guesses on how the economy works. Others mindlessly
