@@ -10,11 +10,10 @@ information or second guesses on how the economy works. Others mindlessly
 plunge into the rat race labyrinth for survival and wound up frustrated with the
 quality of lives they lead.
 In the absence of safety nets that provide immediate support for young people who have been cultured
-and socialized in such depressed economies and challenging environments, these youths are at risk of
+and socialized in such depressed economies and challenging environments, these youths are at the risk of
 shrinking their perspectives to accommodate their realities and thus compromise their true capacity to
 astound the world.
-The good news is that preparing for the future doesn't have to be rigorously grueling.
-Nor is it rocket science. A simple evidence based system that allows young people to
+The good news is that preparing for the future doesn't have to be rigorously grueling, nor is it rocket science. A simple evidence based system that allows young people to
 mind map the future and deliberately build skills that empower them to dominate
 high skills and high wage global industries of the future is what the RITE OF
 PASSAGE is about.
