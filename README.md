@@ -14,7 +14,7 @@ and socialized in such depressed economies and challenging environments, these y
 shrinking their perspectives to accommodate their realities and thus compromise their true capacity to
 astound the world.
 The good news is that preparing for the future doesn't have to be rigorously grueling.
-Nor is it rocket science. A simple evidence based system that allows young people to
+Nor is it rocket science. A simple evidence-based system that allows young people to
 mind map the future and deliberately build skills that empower them to dominate
 high skills and high wage global industries of the future is what the RITE OF
 PASSAGE is about.
@@ -23,10 +23,10 @@ multi-layered approach that presents Nigerian teenagers a clear and sure path to
 adulthood and industry readiness.
 
 ## How to Use
-- Star the Repo
+- Star the Repo.
 - Create an Issue if any.
-- Then a pull request
-- Fork the repo also
+- Then a pull request.
+- Fork the repo also.
 
 
 
